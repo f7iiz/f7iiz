@@ -1,4 +1,5 @@
-<img width="2000" height="280" alt="photo_2025-09-05_17-51-48" src="https://github.com/user-attachments/assets/e1b1cb34-92f6-4a78-8222-7f2267180589" />
+
+<img width="2000" height="280" alt="photo_2025-12-05_23-22-04" src="https://github.com/user-attachments/assets/90d95d18-145a-4be2-94cf-92154247a799" />
 
 
 
