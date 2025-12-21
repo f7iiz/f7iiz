@@ -1,6 +1,5 @@
-
-<img width="2000" height="280" alt="photo_2025-12-05_23-22-04" src="https://github.com/user-attachments/assets/90d95d18-145a-4be2-94cf-92154247a799" />
-
+<p align="center">
+<img width="800" height="250" alt="photo_2025-12-21_16-42-53" src="https://github.com/user-attachments/assets/ef3097dc-29c2-43e2-aced-e1ef29568ac1" />
 
 
 
