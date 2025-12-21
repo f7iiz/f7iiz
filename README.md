@@ -1,5 +1,5 @@
 <p align="center">
-<img width="800" height="250" alt="photo_2025-12-21_16-42-53" src="https://github.com/user-attachments/assets/ef3097dc-29c2-43e2-aced-e1ef29568ac1" />
+
 
 
 
@@ -7,7 +7,7 @@
  ![](https://komarev.com/ghpvc/?username=f1zzxa&style=for-the-badge&color=7a2227&label=♱) 
 
 <p align="center">
-:: #777 ♰
+#777 ♰
 
 
 ───────────────────────────────── ♰ ꜝꜝ  :: ( ´ཀ` ) [INFO](https://t.me/f7info) . . . ??? ⸝⸝ ──────────────────────────────────
