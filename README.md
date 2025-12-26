@@ -1,7 +1,3 @@
-<p align="center">
-
-
-
 
 ㅤ<p align="center">
  ![](https://komarev.com/ghpvc/?username=f1zzxa&style=for-the-badge&color=7a2227&label=♱) 
