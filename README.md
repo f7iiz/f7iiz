@@ -2,9 +2,6 @@
 ㅤ<p align="center">
  ![](https://komarev.com/ghpvc/?username=f1zzxa&style=for-the-badge&color=7a2227&label=♱) 
 
-<p align="center">
-#777 
-
 
 ────────────────────────────────────── ꜝꜝ [INFO](https://t.me/f7info) ( ´ཀ` ) ──────────────────────────────────────
  
