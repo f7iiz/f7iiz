@@ -2,7 +2,7 @@
 
 
 <p align="center">
-<img width="600" height="200" src="https://media1.tenor.com/m/QfrrJeuqkXwAAAAd/crona-soul-eater-soul-eater.gif" />
+<img width="500" height="200" src="https://media1.tenor.com/m/QfrrJeuqkXwAAAAd/crona-soul-eater-soul-eater.gif" />
 
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀⠀   [STRAWPAGE](https://f7iizinfo.straw.page/) | [TG INFO](https://t.me/f7info)
 ㅤ<p align="center">
