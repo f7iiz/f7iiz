@@ -2,7 +2,7 @@
 
 
 <p align="center">
-<img width="300" height="158" alt="soul-eater" src="https://github.com/user-attachments/assets/b2554049-4855-4ce6-9c5c-72d5996e1af7" />
+<img width="170" height="250" alt="IMG_8828" src="https://github.com/user-attachments/assets/6615d7cf-e401-4eb2-a21d-d99e76fd2114" />
 
 
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀⠀   [STRAWPAGE](https://fitsa.straw.page/) | [TG INFO](https://t.me/f7info)
