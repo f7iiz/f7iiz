@@ -1,3 +1,9 @@
+<p align="center">
+<img width="446" height="299" alt="Снимок 1" src="https://github.com/user-attachments/assets/f5ab5c51-6748-4120-a647-d22fce1045da" />
+
+
+
+
 
 
 
